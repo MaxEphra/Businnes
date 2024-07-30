@@ -1,1 +1,1 @@
-maxtrader.company
+www.coincrypto.world
